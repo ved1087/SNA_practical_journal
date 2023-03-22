@@ -1,0 +1,1 @@
+# SNA_practical_journal
